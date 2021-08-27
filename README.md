@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FireLickingyourfeet
+- 👀 I’m interested in games,anime,going outside
+- 🌱 I’m currently learning how to make a fnf mod
+- 💞️ I’m looking to collaborate on with my brother we share this account
+- 📫 How to reach me wiktordurlej@gmail.com / milkmanjakub@gmail.com
